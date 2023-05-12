@@ -1,1 +1,1 @@
-# Lista-de-Excercicios-Beecrowd
+# Lista-de-Exercicios-Beecrowd
